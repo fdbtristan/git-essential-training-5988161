@@ -1,1 +1,1 @@
-Dos tontos muy tontos es una gran película.
+Dos tontos muy tontos es una gran película protagonizada por Jim Carrey.
