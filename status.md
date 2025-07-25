@@ -1,2 +1,2 @@
 ¿Me falta mucho para León?
-La cua bandarra, la cua
+La cua bandarra, la cua.
