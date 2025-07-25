@@ -1,2 +1,1 @@
-¿Me falta mucho para León?
-La cua bandarra, la cua.
+Dos tontos muy tontos.
